@@ -1,0 +1,1 @@
+# Cafe_wifi_power_availability
